@@ -1,0 +1,1 @@
+# Inversor-de-Frequ-ncia-PTX-FD3000-Com-IA-aplicada
